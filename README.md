@@ -13,5 +13,5 @@
 ![](https://64.media.tumblr.com/38f82416f080e809944371aa05931fd5/ea1427eeed145026-70/s1280x1920/dff7904d237af13dc3cbd83057b1056f4ad5db73.pnj)
  ‎ ‎no dni
 
- ‎ ‎ ‎[rentry](https://rentry.co/picnicc)  ‎ ![](https://64.media.tumblr.com/08343ef7663ff72768a8fe63e8a9ec0f/12bcdd913180c647-3e/s100x200/6a3223a03b2f7429ce5a40b8ebeba088854da588.gifv)
+ ‎ ‎ ‎[rentry](https://rentry.co/picnicc) [atabook](casinooflies.atabook.org) ‎ ![](https://64.media.tumblr.com/08343ef7663ff72768a8fe63e8a9ec0f/12bcdd913180c647-3e/s100x200/6a3223a03b2f7429ce5a40b8ebeba088854da588.gifv)
  ![](https://64.media.tumblr.com/bf2701d3b259a020bdd54583066d7e2a/ea1427eeed145026-d8/s1280x1920/2cc817f312511d5844f260c5cf38fa42f11a96d2.pnj)
