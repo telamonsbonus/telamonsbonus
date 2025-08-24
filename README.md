@@ -7,7 +7,7 @@
 ‎anyprns‎ ‎ ‎ ‎ ‎ ![](https://64.media.tumblr.com/cec25f0138cc06b6c0e885b4ebce96ac/c5d9893c06ddbe7a-b8/s75x75_c1/3e9b5fc689ca67c6feb73a0696571449c000a7a6.gifv)
 
 
-‎ ‎ ‎ ‎ bigender , neptunicflexible‎ ‎ ‎ ‎ ‎ ‎ bodily minor   ‎ ‎ ![](https://64.media.tumblr.com/77ce28ee09519357c57ab42abb001522/12bcdd913180c647-17/s250x400/ca135e1f98c4b9661f4bcdb07365c3ec13eb2a86.gifv)
+‎ ‎ ‎ ‎ bigender , neptunicflexible‎ ‎ ‎ ‎ ‎ ‎ bodily minor   ‎ ‎ ![](https://64.media.tumblr.com/77ce28ee09519357c57ab42abb001522/12bcdd913180c647-17/s250x400/ca135e1f98c4b9661f4bcdb07365c3ec13eb2a86.gifv)  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xct3n74cqi4ajbecswcog75sai&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ![](https://64.media.tumblr.com/4c15f7479aab59d295eb4144bce636c4/ea1427eeed145026-86/s2048x3072/c913da5c76dd8e9fbd97ef1bed0ee93c5b6e33a2.pnj)
 
 ![](https://64.media.tumblr.com/38f82416f080e809944371aa05931fd5/ea1427eeed145026-70/s1280x1920/dff7904d237af13dc3cbd83057b1056f4ad5db73.pnj)
