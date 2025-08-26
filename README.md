@@ -12,5 +12,5 @@
 
  ‎ ‎no dni
 
- ‎ ‎ ‎[rentry](https://rentry.co/picnicc) [atabook](https://casinooflies.atabook.org) ‎ ![](https://64.media.tumblr.com/f866fab97a06b2f768ed954b32a8dc70/29180e065441930b-b6/s75x75_c1/0a2e15ddbf231ceb42b03d1529a9d97e3efdf44e.pnj)
+ ‎ ‎ ‎[rentry](https://rentry.co/rottengirIconfessions) [atabook](https://casinooflies.atabook.org) ‎ ![](https://64.media.tumblr.com/f866fab97a06b2f768ed954b32a8dc70/29180e065441930b-b6/s75x75_c1/0a2e15ddbf231ceb42b03d1529a9d97e3efdf44e.pnj)
  ![](https://64.media.tumblr.com/1b299dee2416d031c7ad9932e88955e4/29180e065441930b-bd/s1280x1920/38697f73903068b53812ef842d056bfb9202046e.pnj)
