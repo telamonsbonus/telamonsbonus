@@ -16,7 +16,7 @@
 
  ‎ ‎no dni
 
- ‎ ‎ ‎[rentry](https://rentry.co/rottengirIconfessions) [atabook](https://casinooflies.atabook.org) ‎ ![](https://64.media.tumblr.com/b1c5dabbcada1ecbf55287f44d12f388/d9f2c1c37a0f9a0a-a0/s100x200/92eeb8e0203f2f39e843b232978cbeb9d5a89253.gifv)
+ ‎ ‎ ‎[rentry](https://rentry.co/rottengirIconfessions) [atabook](https://nagitokomaeda.atabook.org) ‎ ![](https://64.media.tumblr.com/b1c5dabbcada1ecbf55287f44d12f388/d9f2c1c37a0f9a0a-a0/s100x200/92eeb8e0203f2f39e843b232978cbeb9d5a89253.gifv)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xct3n74cqi4ajbecswcog75sai&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xct3n74cqi4ajbecswcog75sai&redirect=true)
