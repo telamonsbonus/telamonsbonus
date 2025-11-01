@@ -16,7 +16,7 @@
 
  ‎ ‎no dni
 
- ‎ ‎ ‎[rentry](https://rentry.co/rottengirIconfessions) [atabook](https://telamonsbonus.atabook.org/) ‎ ![](https://64.media.tumblr.com/df4f22f397f20f7b8388e9c74a963301/6f1e5bdf78d09eae-97/s75x75_c1/f4f4e2ad1df0a064f8d5d01d2ff4418d4df76cfb.gifv)
+ ‎ ‎ ‎[rentry](https://rentry.co/telapup) [atabook](https://telamonsbonus.atabook.org/) ‎ ![](https://64.media.tumblr.com/df4f22f397f20f7b8388e9c74a963301/6f1e5bdf78d09eae-97/s75x75_c1/f4f4e2ad1df0a064f8d5d01d2ff4418d4df76cfb.gifv)
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xct3n74cqi4ajbecswcog75sai&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xct3n74cqi4ajbecswcog75sai&redirect=true)
