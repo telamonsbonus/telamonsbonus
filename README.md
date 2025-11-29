@@ -1,5 +1,5 @@
 ![](https://64.media.tumblr.com/ffd2be87e496495e976dfd150036e118/322c10c173b77c5a-b1/s2048x3072/fdd4a044d106d8176caa8dc5b165bfb8df5828fd.gifv)
-![](https://64.media.tumblr.com/e18335cc20be5e6a5d6baf4b89ff657f/1f2b8835ea304d99-cf/s2048x3072/25a8d055433f8cab6017a7d9ee5a5b63aa2a62b8.pnj)
+![](https://64.media.tumblr.com/87496d3538870213b2809fc8f749e9db/70f68352ef186324-ce/s1280x1920/22b1bd0a1c51c1dd5933cd7fa007f5ea2f9a5674.pnj)
                             ![](https://komarev.com/ghpvc/?username=VOX-POPUIi&label=HAIL+VOX+POPULI.ᐟ&color=ed264e)
 
                         ' *Me, VOX POPULI ! The People's Voice.* '                                               
@@ -7,7 +7,8 @@
                                                                                           osdd-1b alter           )   ageless                               
                                                                                                                                   staticmoth & staticapple enjoyer 
                                                                                                                                  
-![](https://64.media.tumblr.com/e18335cc20be5e6a5d6baf4b89ff657f/1f2b8835ea304d99-cf/s2048x3072/25a8d055433f8cab6017a7d9ee5a5b63aa2a62b8.pnj)
+
+![](https://64.media.tumblr.com/87496d3538870213b2809fc8f749e9db/70f68352ef186324-ce/s1280x1920/22b1bd0a1c51c1dd5933cd7fa007f5ea2f9a5674.pnj)
 
               Fandom iwec , unless friends ,  no dni       
                                                        mainly offtab or w/ friends
