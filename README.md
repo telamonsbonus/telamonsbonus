@@ -1,19 +1,20 @@
-![](https://64.media.tumblr.com/ffd2be87e496495e976dfd150036e118/322c10c173b77c5a-b1/s2048x3072/fdd4a044d106d8176caa8dc5b165bfb8df5828fd.gifv)
-![](https://64.media.tumblr.com/87496d3538870213b2809fc8f749e9db/70f68352ef186324-ce/s1280x1920/22b1bd0a1c51c1dd5933cd7fa007f5ea2f9a5674.pnj)
-                            ![](https://komarev.com/ghpvc/?username=VOX-POPUIi&label=HAIL+VOX+POPULI.ᐟ&color=ed264e)
+![](./light.png#gh-light-mode-only)
+<p align="center">
+  <img width="910" height="200" src="https://64.media.tumblr.com/82ee57d364af90de7019cdfdef119bf3/3cd565ce3b5ff9dc-7f/s1280x1920/c8a2197450b12843bad3128c183c835bdcf0da00.gifv">
+</p>
+<p align="center">
+  <img width="910" height="450" src="https://64.media.tumblr.com/864bbc4d2a0691fa0d427ffcc77c854a/3cd565ce3b5ff9dc-6a/s1280x1920/7dd2bb6f8a45373f6b5272d98cbfcec752a86100.gifv">
+</p>
+<img align="right" width="100" height="100" src="https://64.media.tumblr.com/6218c75a9394ab681930237d1a0a0f79/3cd565ce3b5ff9dc-95/s100x200/a6928176fed946068bda5d6c17f9516d3a6a88a3.pnj">
 
-                        ' *Me, VOX POPULI ! The People's Voice.* '                                               
-                                                                                                        vox ou vince      ,    he / she / tech
-                                                                                          osdd-1b alter           )   ageless                               
-                                                                                                                                  staticmoth & staticapple enjoyer 
-                                                                                                                                 
-                      [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xct3n74cqi4ajbecswcog75sai&cover_image=true&theme=novatorem&show_offline=false&background_color=6880b1&interchange=false&profanity=false&bar_color=8f76ad&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![](https://64.media.tumblr.com/87496d3538870213b2809fc8f749e9db/70f68352ef186324-ce/s1280x1920/22b1bd0a1c51c1dd5933cd7fa007f5ea2f9a5674.pnj)
 
-              Fandom iwec , unless friends ,  no dni       
-                                                       mainly offtab or w/ friends
-                           ![](https://64.media.tumblr.com/a9b98f80b53b662d760468378912ef2e/dd0c6e003df711a1-42/s100x200/f39b19be82bdaa044d4d1ceead70fa2f4c43900c.gifv) ![](https://64.media.tumblr.com/ca15183f2259eed4bcf289b7f94f47f3/523959bc663126ff-54/s250x400/f79d04f0cc3e5cce06ef461715ff847d782e636d.pnj)
-                                                                                                                                              ![](https://64.media.tumblr.com/245e338178fa78b1e67ab42546c23176/523959bc663126ff-ff/s100x200/cb9a5fcf2f714709eb4e5e1de46f7bf00eb6fe69.gifv) ![](https://64.media.tumblr.com/ffdf159a3f7b955c8838cc46ce629be7/523959bc663126ff-aa/s100x200/c63b3a69b7cfa367dbf5f88809a81ba92421f3de.gifv)
-                              [atabook !!](https://voxdei.atabook.org/)  [tree !!](https://colormytree.me/2025/01KB94973BBAPXMPHGR8BD5BHB)     
-![](https://64.media.tumblr.com/d75fe65caa0f1cd837f61fa56427c5a8/322c10c173b77c5a-39/s2048x3072/60096dfbadaaf6ef265c471135d71fb17eb15aaf.pnj)
+<p align="center">
+  <img width="910" height="40" src="https://64.media.tumblr.com/cc63483e61b28c4f4f6e47a773e409d2/3cd565ce3b5ff9dc-a6/s1280x1920/93d0cf851525605931f13fc6a6e55c4c893b0db5.gifv">
+</p>
+<p align="center">
+  <img width="910" height="110" src="https://64.media.tumblr.com/3901feb3e0db9e7083e0efce5df74132/3cd565ce3b5ff9dc-82/s640x960/012c154e8168a94ccd59e90eb29e53635941b411.gifv">
+</p>
+<p align="center">
+  <img width="910" height="400" src="https://64.media.tumblr.com/28c125943f533fd966be6429e8786d86/3cd565ce3b5ff9dc-34/s1280x1920/68e32eb5b44c12edf4281e9839989eb5f490a761.gifv">
+ <img width="910" height="200" src="https://64.media.tumblr.com/56bcae7d8186317f012ae9a3f35aecd7/3cd565ce3b5ff9dc-59/s400x600/745493a9a4ccad8df624211fcf6d6dae81937ce1.gifv">
